@@ -34,4 +34,10 @@ By adopting the ILMD system, stakeholders transformed a fragmented last-mile pro
 ##### Issues and Challenges: Late submission of feedback on iLMD and POD reconciliation templates by LMCU coordinators due to delayed LMD and POD submissions by 3PLs, and lack of complete information and supporting documents where variances occurred.
 ##### Recommendations: States highlighted issues such as declining bulk allocation for GF malaria products, lack of POD sharing, and need for prior information on short-dated commodities. LMCU coordinators should adhere to submission deadlines and ensure quality data.
 
-https://1drv.ms/p/c/f2371612cfd15a50/ESDhn-OTA6FGp5MeHC9Weh4B82JwPmeWqkX4-TdYK6gWnw?e=neiRkB
+https://1drv.ms/p/c/f2371612cfd15a50/EeolYcdpKqJAsM3TJw4mY68BZaT67megin9Zf8TeSb5yxg?e=j1ndcA
+
+https://1drv.ms/x/c/f2371612cfd15a50/EWOBxeaiAOBJlHE186gflQgBXwIwTgK8wkLBfS4quqif4g?e=kIbiCp
+
+https://1drv.ms/x/c/f2371612cfd15a50/Eez3_hm_T11Eg3JuWqZ1Ks0BPjcTdirn58JCBp8PLiPbqw?e=kGqdJX
+
+https://1drv.ms/x/c/f2371612cfd15a50/EQj40otRtOFEnAfgox96S50Bbib4ZXUEzEIolhCOa_dftw?e=HuLnLV
